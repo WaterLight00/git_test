@@ -1,1 +1,1 @@
-I'm watching Devs, how about yout?
+I'm watching Devs, how about you?
